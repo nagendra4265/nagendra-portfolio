@@ -9,7 +9,7 @@
 🔐 Strong advocate of **secure, scalable, and performance-critical mobile systems**
 
 🔗 **LinkedIn:** https://linkedin.com/in/nagendra-mudadla-109506a9  
-📄 **Resume:** https://drive.google.com/file/d/1tZsDoIjrJy9DPvpHcGTefkK7HOMOomr_/view?usp=drive_link
+📄 **Resume:** https://docs.google.com/document/d/1FjWh4LzflpaKaDNcC9jI_rHAhLxkcuJ3/edit?usp=sharing&ouid=104287754916390959252&rtpof=true&sd=true
 
 ---
 
